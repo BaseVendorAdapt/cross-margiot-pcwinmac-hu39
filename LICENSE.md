@@ -1,4 +1,4 @@
-# 
+# Automático cross-margin trading bot extensiones para Mac OS | Oficial cross-margin trading bot extensiones para PC Windows. Con monitoreo de baja frecuencia y tamaño de posición — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
